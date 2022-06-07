@@ -1,3 +1,0 @@
-hihi
-GOGO
-COOL
